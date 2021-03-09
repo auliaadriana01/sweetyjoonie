@@ -1,0 +1,2 @@
+# sweetyjoonie
+learn about myself
